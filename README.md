@@ -1,1 +1,0 @@
-# bartlomiejpawlicki.github.io
